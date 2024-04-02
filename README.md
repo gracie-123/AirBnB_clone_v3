@@ -1,1 +1,1 @@
-This is a group project between Morena Macheka and Grace Tumbo.
+This is a group project between Grace Tumbo & Morena Macheka.
